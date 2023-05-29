@@ -1,1 +1,1 @@
-# Pixel-Arts
+# Pixel Arts
